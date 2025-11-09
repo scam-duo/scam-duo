@@ -3,8 +3,6 @@
 ' ron / ry
 
 <div align="center">
-  
-  *minor*
 
   *aroace*
 
