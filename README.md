@@ -4,8 +4,14 @@
 
 <div align="center">
 
-  *aroace*
+  aroace
 
-  *🇵🇭*
+ *🇵🇭*
+ 
+ ashswag fictkin  
 
-  *ashswag fictkin*
+[strwpg](https://swagenthusiast.straw.page)
+.
+.
+.
+[ata](https://ryunoron.atabook.org)
