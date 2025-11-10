@@ -24,3 +24,7 @@ when i say "more info" actually MORE info.
 
 ![Image](https://github.com/user-attachments/assets/f1b96873-6af6-4ec0-873f-681920156298)
 ???
+<div align="right">
+if u need some help on making a repo readme :
+
+[help](https://github.com/scam-duo/imiss-wintershades/blob/main/README.md)
