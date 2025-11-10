@@ -9,8 +9,10 @@
   aroace .
  *🇵🇭* . 
  ashswag fictkin  
- <div align="left">
 
+![Image](https://github.com/user-attachments/assets/691e6035-f50c-489b-85e3-b837172240a9)
+<div align="left">
+  
 [strwpg](https://swagenthusiast.straw.page)
 .
 .
