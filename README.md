@@ -10,7 +10,7 @@
  *🇵🇭* . 
  ashswag fictkin  
 
-![Image](https://github.com/user-attachments/assets/691e6035-f50c-489b-85e3-b837172240a9)
+![Image](https://github.com/user-attachments/assets/2bb9cd14-aebd-40eb-95dd-4fd645f119e0)
 <div align="left">
   
 [strwpg](https://swagenthusiast.straw.page)
