@@ -15,3 +15,9 @@ ashswag fictkin "^_^
 .
 .
 [strwpg](https://swagenthusiast.straw.page)
+
+<div align="left">
+
+[more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
+
+when i say "more info" actually MORE info.
