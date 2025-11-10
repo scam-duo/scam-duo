@@ -21,3 +21,6 @@ ashswag fictkin "^_^
 [more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
 
 when i say "more info" actually MORE info.
+
+![Image](https://github.com/user-attachments/assets/f1b96873-6af6-4ec0-873f-681920156298)
+???
