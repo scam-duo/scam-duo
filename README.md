@@ -4,6 +4,8 @@
 
 <div align="center">
 
+![Image](https://github.com/user-attachments/assets/e6c299ff-1d08-42b1-b71e-dfa9bd5ed1b4)
+
   aroace .
  *🇵🇭* . 
  ashswag fictkin  
