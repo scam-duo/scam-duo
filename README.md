@@ -2,7 +2,7 @@
 <img width="2000" height="1500" alt="Image" src="https://github.com/user-attachments/assets/42457d3f-2c0d-4e29-b7b6-47143b12a9ca" />
 
 <div align="center">
-  ashswag fictkin 
+  ashswag fictkin :) !! 
   
 <div align="right">
   
@@ -22,7 +22,3 @@
 
 ![Image](https://github.com/user-attachments/assets/f1b96873-6af6-4ec0-873f-681920156298)
 ???
-<div align="right">
-if u need some help on making a repo readme :
-
-[help](https://github.com/scam-duo/imiss-wintershades/blob/main/README.md)
