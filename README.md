@@ -10,10 +10,6 @@
 .
 .
 .
-[twt](https://x.com/ryunoron)
-.
-.
-.
 [strwpg](https://swagenthusiast.straw.page)
 
 <div align="left">
