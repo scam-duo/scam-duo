@@ -2,7 +2,7 @@
 <img width="2000" height="1500" alt="Image" src="https://github.com/user-attachments/assets/42457d3f-2c0d-4e29-b7b6-47143b12a9ca" />
 
 <div align="center">
-  ashswag fictkin :) !! 
+  ashswag fictkin ^_@
   
 <div align="right">
   
