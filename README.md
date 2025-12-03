@@ -4,7 +4,7 @@
 
 <div align="center">
 
-*hi hi @^_^@*
+*swaggiest idiot alive*
   
 <div align="right">
   
