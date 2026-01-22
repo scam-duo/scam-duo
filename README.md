@@ -16,4 +16,4 @@
 
 <div align="left">
 
-[more.info](https://github.com/scam-duo/more-info/blob/main/README.md)gets updated every 4-5 business day 😳😳😳
+[more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
