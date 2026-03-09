@@ -11,6 +11,10 @@ i like sleeping alot
 .
 .
 [strwpg](https://swagenthusiast.straw.page)
+.
+.
+.
+[art](https://github.com/scam-duo/art-i-made-yay-i-hate-drawing-actually-/blob/main/README.md)
 
 <div align="left">
 
