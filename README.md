@@ -1,8 +1,8 @@
-<img width="2000" height="1500" alt="Image" src="https://github.com/user-attachments/assets/5b9d76ae-9518-4a4d-84e9-be00cbf965a3" />
+<img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/f4ca541f-1e34-4de0-a92f-d3a45dd0ab7d" />
 
 <div align="center">
 
-*swaggiest idiot alive*
+hello red, ashswga u stink
   
 <div align="right">
   
