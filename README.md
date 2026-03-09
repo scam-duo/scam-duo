@@ -2,7 +2,7 @@
 
 <div align="center">
 
-hello red, ashswga u stink
+i draw(sometimes) 
   
 <div align="right">
   
