@@ -11,6 +11,10 @@ i like sleeping alot
 .
 .
 [strwpg](https://swagenthusiast.straw.page)
+.
+.
+.
+[guns.lol](https://guns.lol/ryunoron)
 
 <div align="left">
 
