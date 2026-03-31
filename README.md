@@ -19,3 +19,5 @@ i like sleeping alot
 <div align="left">
 
 [more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
+
+the account [@parrotxt2](https://github.com/parrotxt2) was supposed to be a joke account but i got too parrotx2pilled 
