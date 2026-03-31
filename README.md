@@ -5,7 +5,11 @@
 i like sleeping alot 
   
 <div align="right">
-  
+
+[ata](https://ryunoron.atabook.org)
+.
+.
+.
 [strwpg](https://swagenthusiast.straw.page)
 .
 .
@@ -15,5 +19,3 @@ i like sleeping alot
 <div align="left">
 
 [more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
-
-ata on other account hhahah confusing Iknow [@parrotxt2](https://github.com/parrotxt2)
