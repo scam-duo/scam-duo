@@ -6,10 +6,6 @@ i like sleeping alot
   
 <div align="right">
   
-[ata](https://ryunoron.atabook.org)
-.
-.
-.
 [strwpg](https://swagenthusiast.straw.page)
 .
 .
