@@ -20,4 +20,4 @@ i like sleeping alot
 
 [more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
 
-the account [@parrotxt2](https://github.com/parrotxt2) was supposed to be a joke account but i got too parrotx2pilled 
+ata on other account hhahah confusing Iknow [@parrotxt2](https://github.com/parrotxt2)
