@@ -2,7 +2,8 @@
   
 <div align="center">
   
-why does red's hand and the "hi" sign look like "OhiO" ??? swag like ohio
+why does red's hand and the "hi" sign looks like
+it's spelling "OhiO"
 
 <div align="right">
 
