@@ -2,8 +2,7 @@
   
 <div align="center">
   
-why does red's hand and the "hi" sign looks like
-it's spelling "OhiO"
+i will fix my strawpage i swear
 
 <div align="right">
 
