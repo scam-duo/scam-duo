@@ -2,7 +2,7 @@
   
 <div align="right">
 
-"OhiO" ohio 😨 ↑
+why does red's hand and the "hi" sign look like "OhiO" ??? swag like ohio
 
 [ata](https://ryunoron.atabook.org)
 .
