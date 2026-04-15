@@ -2,7 +2,7 @@
 
 <div align="center">
 
-dos uno
+red's hand in my drawing mixed with the "hi" sign looks like "ohio" of if you squint really hard
   
 <div align="right">
 
