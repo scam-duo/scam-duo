@@ -2,7 +2,7 @@
   
 <div align="center">
   
-i will fix my strawpage i swear
+what the fuck why is it not transparent
 
 <div align="right">
 
