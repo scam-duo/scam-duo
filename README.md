@@ -10,7 +10,7 @@ i dont really draw...
 .
 .
 .
-[strwpg](scammingduo.straw.page)
+[strwpg](https://scammingduo.straw.page/)
 .
 .
 .
