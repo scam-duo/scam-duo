@@ -15,7 +15,3 @@ i dont really draw...
 .
 .
 [guns.lol](https://guns.lol/ryunoron)
-
-<div align="left">
-
-[more.info](https://github.com/scam-duo/more-info/blob/main/README.md)
