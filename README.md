@@ -10,7 +10,7 @@ i dont really draw...
 .
 .
 .
-[strwpg](https://swagenthusiast.straw.page)
+[strwpg](scammingduo.straw.page)
 .
 .
 .
