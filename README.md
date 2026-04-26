@@ -2,7 +2,7 @@
   
 <div align="center">
 
-i dont really draw...
+they're trapped in a box and u ahve to donate 5 diamonds to save them!!!nn!!
   
 <div align="right">
 
