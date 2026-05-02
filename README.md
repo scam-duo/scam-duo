@@ -10,8 +10,4 @@ they're trapped in a box and u ahve to donate 5 diamonds to save them!!!nn!!
 .
 .
 .
-[strwpg](https://scammingduo.straw.page/)
-.
-.
-.
 [guns.lol](https://guns.lol/ryunoron)
