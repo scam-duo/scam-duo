@@ -8,7 +8,3 @@ they're trapped in a box and u ahve to donate 5 diamonds to save them!!!nn!!
 <div align="right">
 
 [ata](https://ryunoron.atabook.org)
-.
-.
-.
-[guns.lol](https://guns.lol/ryunoron)
