@@ -2,8 +2,12 @@
   
 <div align="center">
 
-remaking strawpage and other sites !
+remaking strawpage
   
 <div align="right">
 
 [ata](https://ryunoron.atabook.org)
+.
+.
+.
+[info](https://github.com/scam-duo/more-info)
