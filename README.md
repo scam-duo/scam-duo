@@ -10,4 +10,4 @@ remaking strawpage
 .
 .
 .
-[info](https://ronr.straw.page)
+[strwpg](https://ronr.straw.page)
