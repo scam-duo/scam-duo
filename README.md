@@ -10,4 +10,4 @@ remaking strawpage
 .
 .
 .
-[info](https://github.com/scam-duo/more-info)
+[info](https://ronr.straw.page)
