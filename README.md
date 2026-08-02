@@ -6,7 +6,7 @@ remaking strawpage
   
 <div align="right">
 
-[ata](https://ryunoron.atabook.org)
+[ata](https://ronico.atabook.org)
 .
 .
 .
