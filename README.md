@@ -7,7 +7,7 @@
   
 <div align="right">
 
-[ata](https://ronico.atabook.org)
+[ata](https://ron.atabook.org)
 .
 .
 .
